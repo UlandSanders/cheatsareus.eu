@@ -1,7 +1,7 @@
 ## Welcome To Cheats Are Us
 
 Use This Website For Common Team Fortress 2 Cheats, And Maybe Other Games Too!
-###### Cheats Here Are Very Safe.
+We Also Made Sure These Files Are Very Safe.
 
 ### Use
 
