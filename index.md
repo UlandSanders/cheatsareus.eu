@@ -12,5 +12,5 @@ You Require No Account, And The Download Is From Mediafire, Most Of These Cheats
 
 #### Lithium 0.7.4 
 ```css
-
+[Download Lithium 1.7.4](https://www.oldschoolhack.me/en/downloads/download/cc6a7489b7c0015e90dd294796cfcc1c)
 ```
